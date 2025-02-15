@@ -1,2 +1,2 @@
 # Belajar-Kombinasi
-belajar coding di Dicoding asik juga ya 
+Pembelajaran kontribusi di Dicoding asik juga ya 
